@@ -1,4 +1,4 @@
-👋 Hello, I'm [Your Name]!
+👋 Hello, I'm Ammar Al Hasani!
 
 🎓 Student @Code Academy Oman | 🌐 Junior Web Developer
 
